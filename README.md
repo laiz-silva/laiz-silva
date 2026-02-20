@@ -46,5 +46,5 @@ Melhoria contínua de processos
 Alinhamento às diretrizes institucionais
 Planejamento e execução de ações acadêmicas 
 
-📫 Contato Acadêmico  
+📫 Contato   
 - E-mail: laizgs@gmail.com
